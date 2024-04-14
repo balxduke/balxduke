@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @balxduke
+- 👀 I’m interested in leatnin new bout internet
+- 🌱 I’m currently taking new information
